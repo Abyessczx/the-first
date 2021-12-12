@@ -29,7 +29,7 @@ ___
 
 1. 懦弱之举，我绝不姑息 
 2. 我将死战不休。
-3. 利用好每一处破绽。![267f9e2f07082838fb4cc3eeb399a9014d08f183](https://user-images.githubusercontent.com/96000017/145711533-9bec6d00-9c61-4dbc-a56e-7432cc8f248b.jpg)
+3. 利用好每一处破绽。
 
 
 
