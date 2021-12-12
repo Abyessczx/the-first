@@ -29,8 +29,17 @@ ___
 
 1. 懦弱之举，我绝不姑息 
 2. 我将死战不休。
-3. 利用好每一处破绽。
+3. 利用好每一处破绽。![267f9e2f07082838fb4cc3eeb399a9014d08f183](https://user-images.githubusercontent.com/96000017/145711533-9bec6d00-9c61-4dbc-a56e-7432cc8f248b.jpg)
 
 
-诺克萨斯之手图片：
-![诺克萨斯之手](media/qwer.png)
+
+诺克萨斯之手
+
+
+![267f9e2f07082838fb4cc3eeb399a9014d08f183](https://user-images.githubusercontent.com/96000017/145711560-08348d9e-f34e-416b-ba16-1f0ad24b2056.jpg)
+
+![t01afd791fefcdb9cc1](https://user-images.githubusercontent.com/96000017/145711549-d0d290cc-7c01-4844-a604-9968250cc41b.jpg)
+
+![U10998P115DT20150303094635](https://user-images.githubusercontent.com/96000017/145711578-d5be14e0-7c93-4cb3-8fa2-303c6ce98d5a.jpg)
+
+
